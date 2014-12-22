@@ -38,12 +38,7 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 King Edward the 2. surnamed Carnaruen was crouned
-att Westminster at the 22. yere of his age the 24.THE
-HISTORIE
-OF EDWARD
-THE SECOND.Surnamed CARNARVAN,
-one of our English
-KINGS.Together with the Fat
+att Westminster at the 22. yere of his age the 24.
 1. TO
 HIS VERY LOVING
 Brother, Mr. RICHARD
